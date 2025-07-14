@@ -9,7 +9,7 @@ I'm fixated on severe weather, mostly tornadoes, but any wind related phenomenon
 
 <img src="tanjiro's hinokami kaguya ultimate stamp.gif"> <img src="tanjiro and nezuko's hinokami kaguya team ultimate stamp.gif"> <img src="kotetsu and yoriichi type zero ultimate stamp.gif">
 
-I'm not as abrasive as my source, so don't act like I'm going to bite your head off if you know that I'm fronting please.
+*"Penance can't absolve your sin / Into me! / Penance can't absolve your [sin](https://music.youtube.com/watch?v=8OyiiPt4AXw&si=nu2DjoGnbQOe-Tks)!"*
 
 C+H is allowed, but I'm often offtab or sitting with friends who may not want to sit with you.
 
