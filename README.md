@@ -7,6 +7,8 @@ The DNI on our main Github applies here too, so just check it. I'm not posting i
 
 I'm fixated on severe weather, mostly tornadoes, but any wind related phenomenon will do. The Jarell tornado of 1997 has to be a favorite of mine. I also like Splatoon, JSR/JSRF, Pokémon and Naruto.
 
+If you couldn't tell, my username is a small reference to a KITCALIBER song; [Snares of Jericho](https://music.youtube.com/watch?v=2wcd1BqdTCI&si=6AHqE2g3LF6miTYC), and a [Derecho](https://en.wikipedia.org/wiki/Derecho) is a form of severe weather.
+
 <img src="tanjiro's hinokami kaguya ultimate stamp.gif"> <img src="tanjiro and nezuko's hinokami kaguya team ultimate stamp.gif"> <img src="kotetsu and yoriichi type zero ultimate stamp.gif">
 
 *"Penance can't absolve your sin / Into me! / Penance can't absolve your [sin](https://music.youtube.com/watch?v=8OyiiPt4AXw&si=nu2DjoGnbQOe-Tks)!"*
