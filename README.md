@@ -15,5 +15,5 @@ C+H is allowed, but I'm often offtab or sitting with friends who may not want to
 
 <img src="kyojuro throwing stamp.gif"> <img src="kotetsu and muichiro stamp 1.gif"> <img src="haganezuka stamp 1.gif">
 
-*(Note; if you like any of these stamps on my repository, I made them and you're free to take them. I'll have a rentry with all of the stamps I've been making pretty soon. Feel free to credit my Github but it's really not necessary whatsoever.)*
+*(Note; if you like any of these stamps on my repository, I made them and you're free to take them. I'll have a rentry with all of the stamps I've been making pretty soon. Feel free to credit by linking my Github but it's really not necessary whatsoever.)*
 
