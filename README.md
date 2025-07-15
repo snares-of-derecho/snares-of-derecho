@@ -9,7 +9,7 @@ I'm fixated on severe weather, mostly tornadoes, but any wind related phenomenon
 
 If you couldn't tell, my username is a small reference to a KITCALIBER song; [Snares of Jericho](https://music.youtube.com/watch?v=2wcd1BqdTCI&si=6AHqE2g3LF6miTYC), and a [Derecho](https://en.wikipedia.org/wiki/Derecho) is a form of severe weather.
 
-<img src="neverland soundgirls stamp.png"> <img src="trust ceremony stamp.png">
+<img src="neverland soundgirls stamp.png"> <img src="trust ceremony stamp.png"> <img src="believe stamp.png">
 
 *"Penance can't absolve your sin / Into me! / Penance can't absolve your [sin](https://music.youtube.com/watch?v=8OyiiPt4AXw&si=nu2DjoGnbQOe-Tks)!"*
 
