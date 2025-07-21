@@ -15,7 +15,7 @@ If you couldn't tell, my username is a small reference to a KITCALIBER song; [Sn
 
 C+H is allowed, but I'm often offtab or sitting with friends who may not want to sit with you.
 
-<img src="obanai's ultimate stamp.gif"> <img src="bpd obanai stamp 1.png"> <img src="npd obanai stamp 2.png">
+<img src="bpd obanai stamp 1.png"> <img src="npd obanai stamp 2.png">
 
 *Note; if you like any of these stamps on my repository, I made them and you're free to take them from [/penance-cant-absolve-your-sin](https://rentry.co/penance-cant-absolve-your-sin) where I store them for the public to use.*
 
