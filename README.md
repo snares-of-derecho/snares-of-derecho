@@ -1,9 +1,9 @@
 ## Sandro (or Alessandro) [3rd Syshost]
-Hey, I'm a Sanemi fictive and I'm generally hosting when other Kimetsu no Yaiba headmates are active.
+I'm a Sanemi fictive from an OSDD system. Doubles and any legal/lightships featuring my source character are fine as long as you ask first. I do not tolerate SaneGen/GenSane shippers, unless you're platonically shipping the Shinazugawa brothers, but I know a lot of you do it romantically or more. That ship makes me super uncomfortable, keep your distance if you ship it.
 
 <img src="sanemi's appearance stamp.gif"> <img src="sanemi kicking the shit out of tanjiro stamp.gif"> <img src="npd sanemi stamp 1.png"> <img src="sanemi's ultimate stamp.gif">
 
-Our stances are on our main Github applies here too, so just check it. I'm not posting it twice. We'll block freely anyways if we actually have an issue.
+Our stances are on our main Github applies here too, so just check it. I'm not posting it twice, just click on the user in the bio.
 
 I'm fixated on severe weather, mostly tornadoes, but any wind related phenomenon will do. The Jarell tornado of 1997 has to be a favorite of mine. I also like Splatoon, JSR/JSRF, Pokémon and Naruto.
 
